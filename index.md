@@ -9,6 +9,10 @@ Los sacrificios de animales simbolizaron el sacrificio perfecto de Jesús.
 Hebreos 9:11-28
 https://www.bible.com/bible/127/HEB.9.11-28
 
+- [x] Propiciación: Salvación en cuanto a Dios __(Problema: El hombre ha pecado y ha ofendido a Dios)__
+- [x] Redención: Salvación en cuanto al Pecado __(Problema: El hombre es esclavo del pecado)__
+- [x] Reconciliación: Salvación en cuanto al hombre __(Problema: El hombre es un pecador, un enemigo de Dios)__
+
 ![Image of Jesus](https://scontent.feoh5-1.fna.fbcdn.net/v/t39.30808-6/278594552_2223654771117140_3137499625096222152_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=5f2048&_nc_ohc=YiNz1wespzYAb4eFbFA&_nc_ht=scontent.feoh5-1.fna&oh=00_AfCPuRNch9VgWF63tv-cQq-KsjNm_2n5WhHVs6RMnuea7A&oe=6625E469)
 ![Image of Cross 1](https://scontent.cdninstagram.com/v/t51.29350-15/422801666_1133798474445428_916192917231336477_n.jpg?stp=dst-jpg_e15&efg=eyJ2ZW5jb2RlX3RhZyI6ImltYWdlX3VybGdlbi43MjB4NzIwLnNkci5mMjkzNTAifQ&_nc_ht=scontent.cdninstagram.com&_nc_cat=108&_nc_ohc=uB1sa_NiQGoAb6R8dd5&edm=APs17CUBAAAA&ccb=7-5&ig_cache_key=MzI5MTA3MTI5NTY0MTEwOTY4NQ%3D%3D.2-ccb7-5&oh=00_AfAUUw972lNfYjQB3PkS6jNniSzhdfz8oXV9kn4Nlon3iw&oe=6625F75D&_nc_sid=10d13b)
 ![Image of Cross 2](https://scontent.cdninstagram.com/v/t51.29350-15/424438672_915611196473695_799629031980521622_n.jpg?stp=dst-jpg_e15&efg=eyJ2ZW5jb2RlX3RhZyI6ImltYWdlX3VybGdlbi43MjB4NzIwLnNkci5mMjkzNTAifQ&_nc_ht=scontent.cdninstagram.com&_nc_cat=107&_nc_ohc=jAtL3_kfrqMAb4b44qD&edm=APs17CUBAAAA&ccb=7-5&ig_cache_key=MzI5MTA3MTI5NTY2NjM3MjI4OA%3D%3D.2-ccb7-5&oh=00_AfDxplRX7cj6Ob4BQGuX4bPVorGqutYThRY8nNmPKTuUpQ&oe=6625FA54&_nc_sid=10d13b)
